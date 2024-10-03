@@ -1,4 +1,4 @@
-a verdadeira arte é apenas o reflexo de quem 
+#a verdadeira arte é apenas o reflexo de quem 
 a contempla
 
 
