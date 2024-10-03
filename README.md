@@ -1,4 +1,4 @@
-# Ǻ V€ЯDǺD€IЯǺ ǺЯT€ € Ǻρ€пǺک Ø Я€FL€XØ D€ QÜ€м Ǻ CØпT€мρLǺ 
+# ⠁⠀⠧⠻⠙⠁⠙⠑⠊⠗⠁⠀⠜⠞⠑⠀⠑⠀⠁⠏⠢⠁⠎⠀⠕⠀⠗⠑⠋⠇⠑⠭⠕⠀⠙⠑⠀⠟⠥⠑⠍⠀⠁⠀⠉⠕⠝⠞⠑⠍⠏⠇⠁⠀
 
 
 ![Gif_samuel](https://github.com/user-attachments/assets/928550ac-82cb-43b6-8293-8955311c2cc4)
