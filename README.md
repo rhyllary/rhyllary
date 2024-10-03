@@ -1,4 +1,5 @@
-# HELLO, Im Rhyllary :D
+a verdadeira arte é apenas o reflexo de quem 
+a contempla
 
 
 ![Gif_samuel](https://github.com/user-attachments/assets/928550ac-82cb-43b6-8293-8955311c2cc4)
