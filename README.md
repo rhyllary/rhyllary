@@ -1,7 +1,8 @@
 # HELLO, Im Rhyllary :D
 
 
-![olhos](https://github.com/user-attachments/assets/91f46a6a-0827-4e42-b74e-d8881ddcbe17)
+![Gif_samuel](https://github.com/user-attachments/assets/928550ac-82cb-43b6-8293-8955311c2cc4)
+
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=rhyllary&layout=donut&theme=radical)](https://github.com/rhyllary/github-readme-stats)
 
